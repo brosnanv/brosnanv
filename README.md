@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Valerie Brosnan
+- 👀 This is some of the work I completed through my degree in Computer Engineering
